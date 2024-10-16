@@ -1,0 +1,4 @@
+Preview For Visual Argument  
+Sam Strader
+
+	So far, I have created a rough version of my visual argument by adding in my intended images and added text. However, it looks rough and I need to determine if this is how I want to do it. This visual argument should be able to be used as a billboard or a digital ad on websites to convince people to show up to games and support. A lot of criticism about American soccer is that it isn’t as good as European soccer and the fans aren’t as passionate as them. So, this visual argument should show people that this isn’t true and that Charlotte FC fans help support the team during game days. I want to have the image on the top left fade into the smoke to add another example of the crowd and to make it look a lot better. Also, I don’t think I like the text I have so far. 
