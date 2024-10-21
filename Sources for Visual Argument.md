@@ -1,0 +1,5 @@
+Asset Links:
+
+[Charlotte FC Crowd.jpg](https://github.com/sam28strader/Gimp/blob/main/Charlotte%20FC%20Crowd.jpg) \- [https://www.fanatics.com/?\_s=gppc\&utm\_campaign=Fanatics%20-%20Brand%20-%20Store%20-%20US%20-%20EN|412637481\&utm\_medium=ppc\&ks\_id=6250\_kw111700034\&utm\_term=fanatics%20fan%20store\&matchtype=bp\&utm\_source=o\&target=kwd-80951746273139:loc-190\&pcrid=80951634186490\&msclkid=2c7c1b7f2520187a88437c6aed88077d](https://www.fanatics.com/?_s=gppc&utm_campaign=Fanatics%20-%20Brand%20-%20Store%20-%20US%20-%20EN|412637481&utm_medium=ppc&ks_id=6250_kw111700034&utm_term=fanatics%20fan%20store&matchtype=bp&utm_source=o&target=kwd-80951746273139:loc-190&pcrid=80951634186490&msclkid=2c7c1b7f2520187a88437c6aed88077d)
+
+[Charlotte FC Fans Close.jpg](https://github.com/sam28strader/Gimp/blob/main/Charlotte%20FC%20Fans%20Close.jpg) \- Author: Troy Hull \-  [https://www.thecharlottepost.com/news/2022/06/12/qcfc/party-hearty-to-an-mls-first-timer-charlotte-fc-s-fan-experience-is-impressive/](https://www.thecharlottepost.com/news/2022/06/12/qcfc/party-hearty-to-an-mls-first-timer-charlotte-fc-s-fan-experience-is-impressive/)  
